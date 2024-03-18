@@ -1,0 +1,1 @@
+- nie lubie javy, ale jestem zmuszany do programowania w niej, mam sie uczyc w domu godzine dziennie bo dostane jedynke z odpytki z teori, bo to wcale nie tak ze to szkola i nauczyciel sa po to aby nas nauczyc, a poza szkola powinnismy miec czas na swoje zycie i prywatne sprawy. nie pozdrawiam
